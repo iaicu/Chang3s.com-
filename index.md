@@ -1,1 +1,1 @@
-Hello world
+这是常想一的博客

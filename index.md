@@ -1,1 +1,1 @@
-这是常想一的博客
+<a href="a.tyouth.cn">WIKI
